@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shanilk2004
-- 👀 I’m interested in science and progrming
+- 👀 I’m interested in science and programing
 - 🌱 I’m currently learning IT from CUSAT SOE
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
